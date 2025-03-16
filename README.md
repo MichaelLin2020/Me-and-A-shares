@@ -26,7 +26,7 @@
 4. 道是核心思想，法是操作逻辑，术是买卖点。
 5. https://mp.weixin.qq.com/s?__biz=MzU2NzEwMDc1MA==&amp;mid=2247484657&amp;idx=1&amp;sn=070b8a0443d6d9c3433d19d18fa57e28&amp;chksm=fca310d0cbd499c608da555b320eedd2606fcd98e3d6888dde147bdb567f274f919c75cc094c&amp;scene=27&poc_token=HLwg1WejJ1nOtiV9gI79nQnGIhvxiqoBk4wTwqwu
 6. https://mp.weixin.qq.com/s?__biz=MzU2NzEwMDc1MA==&amp;mid=2247484782&amp;idx=1&amp;sn=1c77212198512774ce5eea3420242d5b&amp;chksm=fca3114fcbd49859617057fce9d319038d623991a543cb7bc93dbb12a7b670206e44b62a5e76&amp;scene=27#wechat_redirect
-7. 遇到黑天鹅的时候，不要慌不要乱，按照你自己的纪律去止盈止损。当市场会过度解读，放大利空的时候，你不要独立思考，跟着人群，跑的比人群要快，
+7. 遇到黑天鹅的时候，不要慌不要乱，按照你自己的纪律去止盈止损。当市场会过度解读，放大利空的时候，你不要独立思考，要跟着人群，跑的比人群要快，
    因为这群恐慌的人群都是傻子，你不跑，就要被傻子踩死。市场错了，他也是对。这句话是前人总结的。做看得懂的行情，当出现看不懂的情况的时候，赶紧走，什么时候再看懂了，再来。
 8. https://mp.weixin.qq.com/s?__biz=MzU2NzEwMDc1MA==&amp;mid=2247485757&amp;idx=1&amp;sn=4162593e469d9bc6da063dfea47f3221&amp;chksm=fca31d1ccbd4940a15accc818aee6d3c8563cbcdda450e45be996ea80cd64c87f800318ecc68&amp;scene=27#wechat_redirect
 
