@@ -338,5 +338,11 @@
 
 
 2025.03.19
-1.好像有效，坚持做大概率的事情![image](https://github.com/user-attachments/assets/dbd0b039-4854-45bf-ba2a-60e957552ab0)
+1. 好像有效，坚持做大概率的事情![image](https://github.com/user-attachments/assets/dbd0b039-4854-45bf-ba2a-60e957552ab0)
+
+
+2025.03.20
+1. 打板做的太烂了，还是尽量不打板了。
+2. 打个板，亏成狗，低吸的股也冲高大回落，玩尼玛，简直就是去年八九月份复刻。
+3. 无语，还是不行，万马股份这个坑货，下午带崩市场![image](https://github.com/user-attachments/assets/a199adf1-708b-40bd-9d38-41f5550cff83)
 
