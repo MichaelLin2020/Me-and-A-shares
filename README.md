@@ -422,3 +422,6 @@
 
 2025.04.10
 1. 今天还是亏，而且大亏。再次改进看盘界面，在昨日涨停中找能涨停的股的概率是大于在全市场找能涨停的股的。接下来尽可能地去提升自己的交易胜率。![image](https://github.com/user-attachments/assets/999a565e-e6bf-47a1-a80e-ba30ae616529)
+
+2025.04.12
+1. 再次更新看盘界面![{48CAA4D1-6CF5-4D42-9855-C80E0F4D6B36}](https://github.com/user-attachments/assets/c68f8448-7138-4039-a60d-54919f2ffc3b)
