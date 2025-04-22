@@ -24,7 +24,6 @@
 4. 道是核心思想，法是操作逻辑，术是买卖点。
 7. 遇到黑天鹅的时候，不要慌不要乱，按照你自己的纪律去止盈止损。当市场会过度解读，放大利空的时候，你不要独立思考，要跟着人群，跑的比人群要快，
    因为这群恐慌的人群都是傻子，你不跑，就要被傻子踩死。市场错了，他也是对。这句话是前人总结的。做看得懂的行情，当出现看不懂的情况的时候，赶紧走，什么时候再看懂了，再来。
-8. https://mp.weixin.qq.com/s?__biz=MzU2NzEwMDc1MA==&amp;mid=2247485757&amp;idx=1&amp;sn=4162593e469d9bc6da063dfea47f3221&amp;chksm=fca31d1ccbd4940a15accc818aee6d3c8563cbcdda450e45be996ea80cd64c87f800318ecc68&amp;scene=27#wechat_redirect
 9. 戴维斯双击以及戴维斯双杀https://mp.weixin.qq.com/s?__biz=MzU2NzEwMDc1MA==&amp;mid=2247487423&amp;idx=1&amp;sn=09474bfee68439faafa6e1e3b877465e&amp;chksm=fca31b9ecbd49288453ba53b6a8959bc1f07a4dbb85c1a5df7e48c40274dc6a3b3bf23a661db&amp;scene=27#wechat_redirect
 10. 退学炒股《我和小明》https://www.kuangstudy.com/bbs/1465225572912304129
 11. 退学炒股《股票涨跌理论初稿》https://mp.weixin.qq.com/s?__biz=MzI1MjQyMjgwMQ==&mid=2247488290&idx=1&sn=8beb07a6925810ffe24df887811dcec6&chksm=e83883bf993daf9da3e7bc4881703730ba3f83febc3377c8ad0835487b5b04e1ef91f00bd684&mpshare=1&scene=1&srcid=0326e5PKLNZbII7nPSLmEMYr&sharer_shareinfo=88aa220dbaca9c5ef01d6913b8205d8f&sharer_shareinfo_first=88aa220dbaca9c5ef01d6913b8205d8f#rd
